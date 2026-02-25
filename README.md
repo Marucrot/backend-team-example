@@ -1,2 +1,3 @@
-# backend-team-example
-tim pemenang #anjay #winner #bigDenergy #biggusdickus #1 #myniggasteveminecraft #myniggadiddy #myniggadecock 🙏✨🗣️🔥💯💯💯
+535250118 Deco Raditya
+535250116 Kelvandi
+535250106 Steven
